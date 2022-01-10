@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @ben-gardiner
 - 👀 I’m interested in flash games and pop music
-- 🌱 I’m currently learning game dev and piano
+- 🌱 I’m currently learning how to use a computer
 - 📫 How to reach me: with words
